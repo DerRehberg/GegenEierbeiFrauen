@@ -4,3 +4,6 @@
 
 <img width="797" height="443" alt="image" src="https://github.com/user-attachments/assets/0d655709-f73f-4791-8966-067cfb6f80af" />
 
+# Dachte IAA wärs, aber nicht mehr als 1-2 Tropfen 1-2 mal innem Tee, sonst große Problem bei indol 3 kram
+
+<img width="813" height="442" alt="image" src="https://github.com/user-attachments/assets/f2805162-357d-4dae-b9c1-20bd17766418" />
