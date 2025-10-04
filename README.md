@@ -8,6 +8,6 @@
 
 <img width="813" height="442" alt="image" src="https://github.com/user-attachments/assets/f2805162-357d-4dae-b9c1-20bd17766418" />
 
-# Falls keine Ahnung
+# Falls keine Ahnung #Notfalls 1-2 Tropfen am End Tee IAA oder so.
 
 <img width="798" height="602" alt="image" src="https://github.com/user-attachments/assets/a0610beb-bf89-4872-b08f-bf53e22b1ea4" />
