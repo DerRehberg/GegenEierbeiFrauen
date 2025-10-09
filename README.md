@@ -15,3 +15,4 @@
 # Warnung
 
 <img width="864" height="140" alt="image" src="https://github.com/user-attachments/assets/261f25bc-8787-4ffd-b424-6f09cd9278dc" />
+<img width="835" height="255" alt="image" src="https://github.com/user-attachments/assets/2e7b662a-a580-48e3-9c15-4eb9b1c9cc02" />
