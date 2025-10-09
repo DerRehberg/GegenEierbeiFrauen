@@ -11,3 +11,7 @@
 # Falls keine Ahnung #Notfalls 1-2 Tropfen am End Tee IAA oder so.
 
 <img width="798" height="602" alt="image" src="https://github.com/user-attachments/assets/a0610beb-bf89-4872-b08f-bf53e22b1ea4" />
+
+# Warnung
+
+<img width="864" height="140" alt="image" src="https://github.com/user-attachments/assets/261f25bc-8787-4ffd-b424-6f09cd9278dc" />
